@@ -2,6 +2,6 @@
 
 ## Hunting
 
-[Turkey]()
+[Turkey](https://ericsfarm.github.io/hunting/turkey.html)
 
 ## Farming
