@@ -4,13 +4,10 @@ If you know me or have known me in the past, I am sure a question that will come
 
 However, I can tell you my reasons for getting involved today. The main reasons are food-related, but I also have personal reasons as well. If you are against the eating of meat, I don’t expect this to resonate with you at first, but it might be interesting for you to at least consider the following. 
 
-I have never killed my own food before, and I feel that it will be an important experience for me. We (myself included obviously) have a terrible tendency to waste food. For me at least, in the same way that growing your own food makes you take pride in it and want to avoid waste, I believe this will have the same effect because I worked hard to get that animal and want to respect it. A second note is that hunted game meat takes away business from the factory farming industrial complex. If we are to move away from that industry model, we would need to start putting our food dollars elsewhere. I enjoy eating meat and have no plans of going vegetarian or vegan. With that in mind, I would rather eat an animal that lived a natural life and hand processed by myself, than one that spent it in a dark warehouse. A similar reason is that I believe hunting gives you a stake in the game of conservation and sustainability. If a portion of your food or even enjoyment comes from the natural environment, you now have incentive to protect that environment and habitat. And as a bonus, there is a feeling I get when I’m out in the woods scouting for evidence of birds, that I am doing what I was biologically designed to do. I’m not sure if anyone has coined this term, but I’d like to offer up “spiritual resonance” as a description of this feeling. If you work an indoor job, this can make a great difference for your overall mental state.
+Prior to the season, I had never killed my own food before, and I felt that it will be an important experience for me. We (myself included obviously) have a terrible tendency to waste food. For me at least, in the same way that growing your own food makes you take pride in it and want to avoid waste, I believe this will have the same effect because I worked hard to get that animal and want to respect it. A second note is that hunted game meat takes away business from the factory farming industrial complex. If we are to move away from that industry model, we would need to start putting our food dollars elsewhere. I enjoy eating meat and have no plans of going vegetarian or vegan. With that in mind, I would rather eat an animal that lived a natural life and hand processed by myself, than one that spent it in a dark warehouse. A similar reason is that I believe hunting gives you a stake in the game of conservation and sustainability. If a portion of your food or even enjoyment comes from the natural environment, you now have incentive to protect that environment and habitat. And as a bonus, there is a feeling I get when I’m out in the woods scouting for evidence of birds, that I am doing what I was biologically designed to do. I’m not sure if anyone has coined this term, but I’d like to offer up “spiritual resonance” as a description of this feeling. If you work an indoor job, this can make a great difference for your overall mental state.
 
 So in short, I don’t want to live in a future where you live in a pod and eat bugs, as the meme goes. Again, maybe that will work for the high brow society-participator, but it’s not going to work for me. Turkey hunting is a fun, engaging, and healthy way to become introduced to hunting and build outdoors skills. As hunting rates fall across the country, there are now a lot of free resources out there to help you get started, even if you have never been hunting before. I hope you’ll take it into consideration as a potential skill you may want to develop for yourself.
 
-
-
-Field Notes/Observations
 
 ## Why I Hunt
 
@@ -50,4 +47,48 @@ So we took the photos and then I lifted up the gobbler to carry it the 3/4 mile 
 
 When we got back to the house, I wanted to be the one to gut the bird. While I wouldn’t describe this as a pleasant activity, I would have felt cowardly and wasteful to kill this turkey and not be the one to do the entire job of processing. Later, after I returned home, I did the work to prepare for a cape mount. 
 
-Something that struck me deeply, was that when processing a game animal, you realize that you are both made of the same stuff. Flesh, bone, blood, and dust. Just as he comes apart, so do you. It puts the fickleness of life into perspective. If you don’t keep your wits about you in nature, you could end up the same. It’s a reminder to respect all life, your and others’, because we aren’t here forever. As the biblical saying goes, it is from dust that we come and to dust that we will return. While we are here, I intend to use my time to the fullest, and hunting has only strengthened that sentiment. 
+Something that struck me deeply, was that when processing a game animal, you realize that you are both made of the same stuff. Flesh, bone, blood, and dust. Just as he comes apart, so do you. It puts the fickleness of life into perspective. If you don’t keep your wits about you in nature, you could end up the same. It’s a reminder to respect all life, yours and others’, because we aren’t here forever. As the biblical saying goes, it is from dust that we come and to dust that we will return. While we are here, I intend to use my time to the fullest, and hunting has only strengthened that sentiment. 
+
+
+## Selected Field Notes/Daily Logs
+
+### April 12, 2022.
+
+Arrival 05:10. Holly Shelter Game Land Wildlife Preserve. Holly Ridge, North Carolina. 
+
+Attempted to set up off North end swamp off Hines Kiln Rd. GPS couldn't seem to place my location. Finally set up in non-ideal location. Forgot Thermacell, heavy mosquito swarms. Hen clucked for one sequence, then nothing. Departed 8:00AM. Bumped hen on return journey. Was hiding in the brush/ditch on side of the road. 
+
+Returned 17:45, Bannerman Rd. Took a right at fork, no entry point available. Returned to main road then found an entry point into the swamp. Deer tracks, bear scat present. Sweetgum nuts on the ground. No signs of birds. Spooked duck on way in and a heron on the way out while walking down the road. Maybe the only good time to enter this location is in the morning?
+
+While driving home on Shaw Rd., there was a hen standing about 10 yds off from the ditch, just over the south game lands border onto private.
+
+### April 13, 2022. 
+
+Arrival 11:25. Holly Shelter Game Land Wildlife Preserve, Western tract. Holly Ridge, North Carolina.
+
+Investigated pine stand on the first left after the shooting range, near location of hen seen previous evening. Pines give way to hardwoods and creek/property line. Peeled off to hit small pine ridge mixed with hardwoods near property line and creek. Nothing, moved on until hitting gravel road. Saw unidentifiable turkey heading into the woods at a brisk walking pace while coming around the bend. Lots of tracks, including beard trail in the sand. 
+
+### April 14, 2022. 
+
+Arrival 07:15. Sawpit Landing Boat Access, Northeast Cape Fear River. Burgaw, North Carolina. 
+
+Put kayak in and paddled downriver toward Ashes Creek. Some way before reaching it, heard a gobble on West bank of the River. Landed and disembarked with equipment on the bank. Set up on edge of interior swamp area, with back to an oak tree. Somewhat exposed, but not much cover available. Lightly called with yelp sequence on box call. Gobbler responds about 5 minutes later. Over next 20 minutes, lightly yelp once more. Tom gobbles 2-3 more times en route to my location. Emerged cautiously from brush across edge of the swamp water. Stopped short ~50 yds. Surveys the area for about 10 minutes while keeping in the shadows. Cannot get positive ID on a beard/coloring, too dark and too far. Cannot raise shotgun as I am exposed and in direct sight line. Bird departs, then wait 15 minutes and head back to the boat. Paddled 1/4 mile downriver and put back in on the West bank. Set up below old treestand with good cover, no action. Later realized this is where bird had previously come from earlier. Moved inland, set up on edge of a glade with more vegetation cover, thigh high brush. After clucks and purrs on the box call, gobbler approaches once again, this time silently. Appears brifely rustling through brush. Use binoculars after his head surfaces again, positive ID on head coloration for a Tom. Went into brush on my left, but did not reappear on the other side. Made my way upstream to flank from oppostie side of swamp, arrive 3:00PM. Set up behind downed tree. Nothing, move further inland, no further action. Depart approximately 7:00PM after several wrong turns on exit journey. 
+
+### April 17, 2022.
+
+Arrival 08:00. Bellhammon Game Lands, Northeast Cape Fear River. Castle Hayne, North Carolina. 
+
+Portage kayak 3/4 mile from gate to River along trail. Paddle upriver towards the Northerm shore of Turkey Creek, approximately 6 miles one way. Encounter multiple boaters while heading north. Most are considerate, except for Bass fisherman in johnboat about 1 mile upriver. Hooting and hollering, sauced up at 09:00 and scaring all fish and wildlife in the area. At approximately mile 5 near Duke power line crossing, first alligator sighting. Small juvenile that quickly darts away. Reach mouth of Turkey Creek, several more juvenile alligator sightings. All retreat upon contact. North shoreline consists of thick mangrove trees with no good landing point. Paddle up a small tributary, multiple wood duck sightings, however no viable entry point. Return to Turkey Creek and proceed upriver. Encounter large alligator on Southern bank, approximately 6ft in length. Gator enters water to intecept my path. Turn boat around and return downriver. 
+
+
+### April 22, 2022. 
+
+Arrival 06:00. Private property. Upshur County, West Virgina. 
+
+Make way to top of ridge and set up against trees. Hear one hen yelping, then goes silent. Continue along ridge, past cemetery. After settling in, start on the box call with soft clucks. Hear one gobble, then more, each becoming farther away. Possibly multiple birds. We move up but birds seem to keep a constant distance from us, one seems to be around the bend of the highest point. We move around back side to cut him off. Later, he gobbles close. His head appears just above the edge of the ridge to survey the area, then retreats. Employ occasional soft calling on the box. Nothing for awhile. A hawk slowly glides above, and screeches twice. About to move, and suddenly hear another gobble on our side of the ridge, very close. The Tom comes into view and begins slowly ascending up the incline towards us. Starts to turn away from my shooting zone, but changes his mind and continues on. Bird cautiously continues climbing up the ridge until coming within 20 yards of my setup. He pauses for a moment, and I take the shot. Direct headshot, goes down immediately.
+
+Approximately 2 year old bird, 10" beard and 7/8" spurs, taken with 12ga 3" TSS #9 load. After noticing unusually pungent smell of bird, flipped it over and noted previous injuries infected with gangrene, probable gunshot wound from rifle to the breast, or possible coyote attack. Otherwise, a fine bird. Feathers in generally good condition.  
+
+
+
+
